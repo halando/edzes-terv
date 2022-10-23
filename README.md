@@ -1,0 +1,2 @@
+# edzes-terv
+ beosztas
